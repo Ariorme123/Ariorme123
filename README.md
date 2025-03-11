@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding obv
 - 🌱 I’m currently learning coding obv
 - 💞️ I’m looking to collaborate on CODINGGG
-- 📫 How to reach me: on snapchat: @epaba
+- 📫 How to reach me: on snapchat: @epabw
 - 😄 Pronouns: ...her/she
 - ⚡ Fun fact: ...The oldest living land animal on earth is a 192-year-old tortoise named Jonathan.
   
